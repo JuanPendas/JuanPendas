@@ -1,6 +1,6 @@
 # 👀 About Me:
-+🛠 Electronical engineer 
-+💡 Attempt of entrepreneur
+🛠 Electronical engineer  
+💡 Attempt of entrepreneur
 
 
 ## 🌐 Socials:
