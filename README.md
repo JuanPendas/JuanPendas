@@ -1,5 +1,7 @@
 # 👀 About Me:
-Electronical engineer & attempt of entrepreneur
+🛠Electronical engineer
+            &
+💡Attempt of entrepreneur
 
 
 ## 🌐 Socials:
